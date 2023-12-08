@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nurikflexc
+- 💻 I’m interested in coding
+- 🤓 I’m currently learning ethical hacking
+- 📫 How to reach me nurikforcoding@gmail.com
